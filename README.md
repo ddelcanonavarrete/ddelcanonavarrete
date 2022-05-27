@@ -2,9 +2,9 @@
 
 - 👨‍💻 I’m currently working on Prodevelop as Big Data Developer
 - 🌱 I’m currently learning about AI & Big Data
-- 📫 You can reach me by <a href="mailto:elcorreoquequieres@correo.com">mail</a> or by my <a href="https://www.linkedin.com/in/ddelcano/">LinkedIn</a>
+- 📫 You can reach me by <a href="mailto:ddelcanonvarrete@gmail.com">mail</a> or by my <a href="https://www.linkedin.com/in/ddelcano/">LinkedIn</a>
 - 😄 Pronouns: He/him
-- ⚡ Hobbies: I ❤ movies and videogames!
+- ⚡ Hobbies: I ❤ movies and series!
 
 ### Languages:
 
